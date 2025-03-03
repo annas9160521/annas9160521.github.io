@@ -8,10 +8,12 @@
 
 ## Food
 
-![image](https://github.com/user-attachments/assets/2d219b2d-6711-49a8-86c2-86e4c9e130fa)
+![image](https://github.com/user-attachments/assets/70cf84ca-6157-454f-b862-3e134a9d60c4)
+
 
 
 
 ## Smiles
 
-![image](https://github.com/user-attachments/assets/80c170ac-45ca-4b6b-8778-93418211c7b6)
+![image](https://github.com/user-attachments/assets/e3c91a8a-4633-4f81-8f39-2f3ae00debfd)
+
