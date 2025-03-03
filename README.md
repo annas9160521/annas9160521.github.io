@@ -1,3 +1,17 @@
 # Hui Yuan 施惠元
 
-![image](https://github.com/user-attachments/assets/bb7a302b-8f05-4bd2-8813-102fe06a59b2)
+## Map
+
+![image](https://github.com/user-attachments/assets/59826cdb-ac3b-40dd-b594-afbfa1f8f79d)
+
+
+
+## Food
+
+![image](https://github.com/user-attachments/assets/2d219b2d-6711-49a8-86c2-86e4c9e130fa)
+
+
+
+## Smiles
+
+![image](https://github.com/user-attachments/assets/80c170ac-45ca-4b6b-8778-93418211c7b6)
